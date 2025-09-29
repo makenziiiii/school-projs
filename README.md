@@ -1,0 +1,1 @@
+school projects and exercises
